@@ -1,4 +1,4 @@
-# 
+# Personalizado pancakeswap trading bot scripts para Mac OS | Avançado pancakeswap trading bot scripts para PC Windows. Com agregação multi-DEX e varredura de arbitragem — otimizado para máximo desempenho em cada plataforma.
 
 
 
